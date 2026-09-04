@@ -1,16 +1,15 @@
-## Hi there 👋
+────୨ৎ────────୨ৎ────
 
-<!--
-**vionhxxa/vionhxxa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+HELLO WLCM TO MY GitHub! 
 
-Here are some ideas to get you started:
+⤷
+- I'm MOSTLY online on PT , DISCORD , TT , ROBLOX , 
+ ────୨ৎ──── 
+🫒 STRAWPAGE:
+╰┈➤ NO STRAWPAGE yet! SORRY !!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+────୨ৎ────
+👀 TT:
+╰┈➤ https://www.tiktok.com/@xiuez_ajkt?_r=1&_t=ZS-99RxVJ4oXj7
+
+----> I'm MOSTLY running on fumes and coffee so please don't cause problems , SINCE I have a LOT of school works.
